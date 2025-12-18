@@ -11,7 +11,7 @@ REACH ME OUT:
 ---
 ⭐ ABOUT ME!
 
-Hi! I'm Alexa Jianiah Arreza, 19 years old and now second year in BSIE. 
+I'm Alexa Jianiah Arreza, 19 years old and second year pursuing Industrial Engineering for continuous improvement and optimization. I love exploring things with my creativity. 
 
 ⠀⠀⠀⠀⠀⡀⠀⠀⠀⠨⠇⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠽⠅⠀⠀⠀⠀⠀⣄⣀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
@@ -34,3 +34,5 @@ Hi! I'm Alexa Jianiah Arreza, 19 years old and now second year in BSIE.
 
 🌼 i love listening to music
 
+
+Industrial Engineering compared to other engineering fields is how it is applied—not just to individual machines or materials, but to optimize entire systems of people, processes, and technology.
