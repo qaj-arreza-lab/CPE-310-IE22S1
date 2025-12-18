@@ -13,6 +13,8 @@ REACH ME OUT:
 <img width="3780" height="1890" alt="Playful Welcome Banner Landscape" src="https://github.com/user-attachments/assets/918940e4-9923-4ceb-aecc-2e082f4fa74b" />
 
 
+
+
 I'm Alexa Jianiah Arreza, 19 years old and second year pursuing Industrial Engineering for continuous improvement and optimization. I love exploring things with my creativity. 
 
 ⠀⠀⠀⠀⠀⡀⠀⠀⠀⠨⠇⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
