@@ -23,6 +23,5 @@ I'm Alexa Jianiah Arreza, 19 years old and now second year in BSIE.
 
 
 🐣 i like the color yellow
-⛅ love to walk 
-
-https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExeWVndzhzNHIxNHAxYmUzdDh0a2lneTcwcnhuYXh3eXZ3c3J4emM4ZiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/FqHTyEllkHxAY/giphy.gif
+⛅ i love to walk 
+🌼 i love listening to music
