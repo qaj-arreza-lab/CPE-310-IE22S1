@@ -9,7 +9,8 @@ REACH ME OUT:
 
 
 ---
-⭐ ABOUT ME!
+![Uploading Playful Welcome Banner Landscape.png…]()
+
 
 I'm Alexa Jianiah Arreza, 19 years old and second year pursuing Industrial Engineering for continuous improvement and optimization. I love exploring things with my creativity. 
 
@@ -38,3 +39,5 @@ I'm Alexa Jianiah Arreza, 19 years old and second year pursuing Industrial Engin
 Industrial Engineering compared to other engineering fields is how it is applied—not just to individual machines or materials, but to optimize entire systems of people, processes, and technology.
 
 ---
+
+
