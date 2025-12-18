@@ -1,9 +1,11 @@
 # CPE-310-IE22S1
 Fundamentals of Data Science.
 
+REACH ME OUT
 
 ᶻ 𝗓 𐰁 .ᐟ gmail: qaj-arreza@tip.edu.ph
 
+ᶻ 𝘇 number: 
 ---
 ⭐ ABOUT ME!
 
