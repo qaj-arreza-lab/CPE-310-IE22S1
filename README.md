@@ -9,8 +9,7 @@ REACH ME OUT:
 
 
 ---
-![Uploading Playful Welcome Banner Landscape.png…]()
-
+💥 ABOUT ME!
 
 I'm Alexa Jianiah Arreza, 19 years old and second year pursuing Industrial Engineering for continuous improvement and optimization. I love exploring things with my creativity. 
 
