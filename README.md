@@ -36,3 +36,5 @@ I'm Alexa Jianiah Arreza, 19 years old and second year pursuing Industrial Engin
 
 
 Industrial Engineering compared to other engineering fields is how it is applied—not just to individual machines or materials, but to optimize entire systems of people, processes, and technology.
+
+---
